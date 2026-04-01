@@ -1,3 +1,3 @@
-# Welcome to your Lovable project
+# Sorri pela Manhã
 
-TODO: Document your project here
+Mini donuts e cookies artesanais em Beja — personaliza massas e coberturas e encomenda pelo Instagram **@sorrimanha**.
